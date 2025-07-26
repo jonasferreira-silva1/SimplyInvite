@@ -192,4 +192,4 @@ Para ambiente de produção:
 
 ## 📞 Suporte
 
-Para suporte, entre em contato através do e-mail: suporte@simplyinvite.com
+Para suporte, entre em contato através do e-mail: jonas.fsilva1@hotmail.com
